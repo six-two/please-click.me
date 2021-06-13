@@ -1,3 +1,3 @@
-# Demo web shot
+# Demo web shop
 
 TODO
